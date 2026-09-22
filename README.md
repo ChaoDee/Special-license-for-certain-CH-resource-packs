@@ -1,0 +1,1 @@
+# Special-license-for-certain-CH-resource-packs
